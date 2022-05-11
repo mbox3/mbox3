@@ -13,4 +13,4 @@ So happy to see you visiting my profile page. Not gonna write much here because 
 There are currently 2 links for the "stuff"
 
 🔗 http://bingus.ml/ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-🔗 https://mbox3.github.io/
+🔗 https://mbox3.github.io/bingus-project
